@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PramRadja
+- 👀 I’m interested in Web Design and Web Development
+- 🌱 I’m currently learning Web Design software like Figma, CorelDraw etc
+- 📫 Reach me at pramadhika7@gmail.com
+- Get to know me!
